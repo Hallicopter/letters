@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "Welcome to Jekyll!"
-date:   2014-05-24 23:52:38
+title:  "goodwill hunting: $3 books in ues"
+date:   2024-04-24 23:52:38
 categories: jekyll update
 ---
 
