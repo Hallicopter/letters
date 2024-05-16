@@ -7,7 +7,7 @@ categories: jekyll update
 
 Hey AR,
 
-First of all, I have to say, those mango lavendar cocktails sound delightful. Secondly, I am glad you have your gloves to help with your dirty dishes. I don't know at the end of your letter, if you meant them to be metaphorical but that was my interpretation. Or maybe I am giving you too much credit.
+First of all, I have to say, those mango lavendar cocktails sound delightful. Secondly, I am glad you have your gloves to help with your dirty dishes. I am not sure if the gloves you mentioned at the end of your letter were meant to be metaphorical but that was my interpretation. Or maybe I am giving you too much credit.
 
 Talking about doing the dishes, I have discovered something new about myself. I enjoy cleaning. But there are caveats to this. I don't enjoy doing dishes when the sun is up. It's a sun down activity. I enjoy only cleaning the living room and the kitchen. I don't like cleaning bedrooms. I have somehow convinced myself that doing the dishes, and cleaning is quite meditative. I usually listen to some Fred Again and do the dishes. I make the lighting kind of moody. It's enjoyable. Who'd have thunk.
 
