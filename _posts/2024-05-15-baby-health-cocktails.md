@@ -16,6 +16,8 @@ Also, on the topic of mango lavendar cocktails – I am the resident cocktail ma
 2. Cocktail of the earth: Beetroot juice, some star anise(?), everclear, and something else
 3. Eno bomb: Simple syrup, soda, everclear and eno. 
 
+Other ingredients I played with involved a mushroom elixir, kombucha, and a few more healthy sounding drinks.
+
 Number 3 was a crowd pleaser. It involved two glasses, a large round glass that contained the liquor. And a tiny shot glass that contained about a few pinches of eno. To drink it, you had to drop the shot glass upside down into the big glass, and had to chug the cocktail before the eno foam overflowed. Everyone loved it.
 
 Honestly, I made many more cocktails that night, but things got a blurry pretty fast. All the cocktails tasted fabulous. Dangerously fabulous.  It's worth noting, Everclear is 95% alcohol and needs to be handled carefully. Fortunately, I spent my time at Cornell exculsuively using Everclear as my liquor of choice. It is a blank canvas that can be used to make so many things, from cocktails, to fancy steeped liquors. I am such a fan, I have been contemplating writing a book on everclear recipes. It could be an encyclopedia. By the way, the only cocktail that didn't land on that night was was a spicy jaljeera cocktail that I didn't quite get right. It had a weird aftertaste. On paper it felt like a great idea.
